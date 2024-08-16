@@ -4,6 +4,8 @@
 - https://www.reddit.com/r/philadelphia/comments/1etlxdz/crews_respond_to_reports_of_car_in_schuylkill/
 - https://6abc.com/post/crews-respond-reports-car-schuylkill-river-philadelphias-fairmount-park/15192175/
 - https://www.nbcphiladelphia.com/news/local/car-into-schuylkill-river/3945370/?_osource=SocialFlowTwt_PHBrand
+- https://www.youtube.com/watch?v=MMaQ-zOqZuM
+- https://www.youtube.com/watch?v=SrwORjeP41s
 
 ### 2024-08-15 Car Crash
 - https://6abc.com/videoClip/15190436/
@@ -19,6 +21,9 @@
 - https://www.inquirer.com/business/kelly-drive-speed-limit-reduced-slow-20231214.html
 - https://www.phillyvoice.com/kelly-drive-speed-limit-25-mph-crashes-philly/
 - https://www.nbcphiladelphia.com/news/local/the-big-slowdown-philly-testing-slower-speed-limit-signage-on-kelly-drive-cottman-ave-and-vine-street/3721081/
+
+### 2023-10-28 Philadelphia police officer, motorcyclist involved in crash on Kelly Drive
+- https://6abc.com/kelly-drive-crash-philadelphia-police-department-motorcycle/13984854/
 
 ### 2023-08-12  Motorcyclist killed after losing control
 - https://www.nbcphiladelphia.com/news/local/motorcyclist-killed-crash-along-kelly-drive-in-philly/3623636/
@@ -39,3 +44,10 @@
 - https://www.inquirer.com/news/bicyclist-kelly-drive-crash-driver-police-20200708.html
 - https://bicyclecoalition.org/18-year-old-cyclist-killed-on-high-injury-network-corridor/
 
+### 2013-07-28 Car drives into river
+- https://www.cbsnews.com/philadelphia/news/car-drives-off-kelly-drive-into-schuykill/
+- https://www.nbcphiladelphia.com/news/local/car-crashes-into-schuylkill-river-2/1965229/
+- https://www.reddit.com/r/philadelphia/comments/1j9anq/car_drives_off_kelly_drive_and_into_the/?share_id=i86B4oe2bkwAvrSCjkSI5
+
+### 2018-03-05 10 car pile up
+- https://www.youtube.com/watch?v=0tbGs79Zw2A
