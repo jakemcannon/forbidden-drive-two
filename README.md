@@ -26,11 +26,11 @@
 ### 2023-10-28 Philadelphia police officer, motorcyclist involved in crash on Kelly Drive
 - https://6abc.com/kelly-drive-crash-philadelphia-police-department-motorcycle/13984854/
 
-### 2023-08-12  Motorcyclist killed after losing control
+### 2023-08-12 Motorcyclist killed after losing control
 - https://www.nbcphiladelphia.com/news/local/motorcyclist-killed-crash-along-kelly-drive-in-philly/3623636/
 
 ### 2023-03-16 Rope "barriers" introduced
-- When white rope "barrier" were first introduced
+- White rope "barrier" are first introduced
 - https://www.inquirer.com/news/kelly-drive-barriers-east-fairmount-philadelphia-parks-and-recreation-trail-boathouse.html
 
 ### 2020-12-30 Fatal car crash in to tree
@@ -40,15 +40,16 @@
 ### 2020-07-18 Head on collision
 - https://www.cbsnews.com/philadelphia/news/police-3-people-injured-in-bad-accident-on-kelly-drive-near-falls-bridge/
 
-### 2020-07-07 18 year old cyclist killed on kelly drive
+### 2020-07-07 18 year old cyclist killed on Kelly Drive
 - https://www.phillyvoice.com/philly-cyclist-killed-kellly-drive-accident-investigation-vision-zero/
 - https://www.inquirer.com/news/bicyclist-kelly-drive-crash-driver-police-20200708.html
 - https://bicyclecoalition.org/18-year-old-cyclist-killed-on-high-injury-network-corridor/
+
+### 2018-03-05 10 car pile up
+- https://www.youtube.com/watch?v=0tbGs79Zw2A
 
 ### 2013-07-28 Car drives into river
 - https://www.cbsnews.com/philadelphia/news/car-drives-off-kelly-drive-into-schuykill/
 - https://www.nbcphiladelphia.com/news/local/car-crashes-into-schuylkill-river-2/1965229/
 - https://www.reddit.com/r/philadelphia/comments/1j9anq/car_drives_off_kelly_drive_and_into_the/?share_id=i86B4oe2bkwAvrSCjkSI5
 
-### 2018-03-05 10 car pile up
-- https://www.youtube.com/watch?v=0tbGs79Zw2A
