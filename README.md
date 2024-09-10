@@ -1,5 +1,11 @@
 # Kelly Drive automobile crash reports
 
+### 2024-09-10 3rd car in one month drives in to river
+- https://www.instagram.com/reel/C_vo8Opqoua/
+- https://www.nbcphiladelphia.com/news/local/car-schuylkill-river-philadelphia/3964678/
+- https://www.inquirer.com/news/philadelphia/schuylkill-river-jeep-kelly-drive-philadelphia-20240910.html
+- https://www.audacy.com/kywnewsradio/news/local/another-vehicle-drives-into-schuylkill-3rd-in-a-month
+
 ### 2024-08-16 Car drives into river
 - https://x.com/cyclingphilly/status/1824470918158295104?s=46&t=TUcglNQLJinj3L01JUHYrA
 - https://www.reddit.com/r/philadelphia/comments/1etlxdz/crews_respond_to_reports_of_car_in_schuylkill/
