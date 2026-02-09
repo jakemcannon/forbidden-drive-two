@@ -1,5 +1,18 @@
 # Kelly Drive automobile crash reports
 
+### 2025-11-02 Pedestrian critically injure after being hit by car
+- https://6abc.com/post/woman-critically-injured-being-struck-vehicle-kelly-drive-fairmount/18103566/
+
+
+### 2025-01-13 4 hurt in 3 car crash
+- https://www.nbcphiladelphia.com/news/transportation-and-transit/kelly-drive-crash-2/4076042/
+- https://www.nbcphiladelphia.com/video/news/transportation-and-transit/4-hurt-in-crash-on-kelly-drive-in-philadelphias-fairmount-park/4076075/
+
+
+### 2024-12-03 Single car crash - car overturned
+- https://6abc.com/post/driver-injured-overturn-crash-kelly-drive-philadelphias-fairmount-park-section/15618343
+
+
 ### 2024-09-10 3rd car in one month drives in to river
 - https://www.instagram.com/reel/C_vo8Opqoua/
 - https://www.nbcphiladelphia.com/news/local/car-schuylkill-river-philadelphia/3964678/
@@ -22,6 +35,10 @@
 
 ### 2024-07-28 Car crash ends up on pedestrian trail
 - https://x.com/nextphlmayor/status/1817705054050136153
+
+### 2024-05-23 Drag racing on Kelly Drive behind the art museum
+- https://6abc.com/post/driver-caught-video-dangerous-street-stuntsat-kelly-drive/14861234/
+
 
 ### 2023-12-02 Kelly drive 25mph speed limit goes in to effect
 - https://www.fox29.com/news/kelly-drive-speed-limit-reduced-to-25-mph-in-philadelphia-officials
@@ -54,8 +71,18 @@
 ### 2018-03-05 10 car pile up
 - https://www.youtube.com/watch?v=0tbGs79Zw2A
 
+### 2016-04-09 Car flips in to river and man drowns
+- https://www.nbcphiladelphia.com/news/local/driver-death-schuylkill-river-crash-water-kelly-drive-philadelphia/72769/
+
+
 ### 2013-07-28 Car drives into river
 - https://www.cbsnews.com/philadelphia/news/car-drives-off-kelly-drive-into-schuykill/
 - https://www.nbcphiladelphia.com/news/local/car-crashes-into-schuylkill-river-2/1965229/
 - https://www.reddit.com/r/philadelphia/comments/1j9anq/car_drives_off_kelly_drive_and_into_the/?share_id=i86B4oe2bkwAvrSCjkSI5
 
+
+### 2012-02-10 Four car crash
+- https://whyy.org/articles/kelly-drive-reopens-after-four-car-collision/
+
+### 2012-01-17 Fatal car crash mom and 14 year old boy
+- https://whyy.org/articles/kelly-drive-crash/
