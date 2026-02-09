@@ -1,25 +1,27 @@
 # Kelly Drive automobile crash reports
 
 ### 2025-11-02 Pedestrian critically injure after being hit by car
+
 - https://6abc.com/post/woman-critically-injured-being-struck-vehicle-kelly-drive-fairmount/18103566/
 
-
 ### 2025-01-13 4 hurt in 3 car crash
+
 - https://www.nbcphiladelphia.com/news/transportation-and-transit/kelly-drive-crash-2/4076042/
 - https://www.nbcphiladelphia.com/video/news/transportation-and-transit/4-hurt-in-crash-on-kelly-drive-in-philadelphias-fairmount-park/4076075/
 
-
 ### 2024-12-03 Single car crash - car overturned
+
 - https://6abc.com/post/driver-injured-overturn-crash-kelly-drive-philadelphias-fairmount-park-section/15618343
 
-
 ### 2024-09-10 3rd car in one month drives in to river
+
 - https://www.instagram.com/reel/C_vo8Opqoua/
 - https://www.nbcphiladelphia.com/news/local/car-schuylkill-river-philadelphia/3964678/
 - https://www.inquirer.com/news/philadelphia/schuylkill-river-jeep-kelly-drive-philadelphia-20240910.html
 - https://www.audacy.com/kywnewsradio/news/local/another-vehicle-drives-into-schuylkill-3rd-in-a-month
 
 ### 2024-08-16 Car drives into river
+
 - https://x.com/cyclingphilly/status/1824470918158295104?s=46&t=TUcglNQLJinj3L01JUHYrA
 - https://www.reddit.com/r/philadelphia/comments/1etlxdz/crews_respond_to_reports_of_car_in_schuylkill/
 - https://6abc.com/post/crews-respond-reports-car-schuylkill-river-philadelphias-fairmount-park/15192175/
@@ -28,61 +30,73 @@
 - https://www.youtube.com/watch?v=SrwORjeP41s
 
 ### 2024-08-15 Car Crash
+
 - https://6abc.com/videoClip/15190436/
 - https://www.nbcphiladelphia.com/news/local/car-crash-kelly-drive-philadelphia/3945101/
 - https://www.reddit.com/r/philadelphia/comments/1et9l8d/fatal_accident_on_kelly_drive/
 - https://x.com/KeeleyFox29/status/1824224698021958133
 
 ### 2024-07-28 Car crash ends up on pedestrian trail
+
 - https://x.com/nextphlmayor/status/1817705054050136153
 
 ### 2024-05-23 Drag racing on Kelly Drive behind the art museum
+
 - https://6abc.com/post/driver-caught-video-dangerous-street-stuntsat-kelly-drive/14861234/
 
-
 ### 2023-12-02 Kelly drive 25mph speed limit goes in to effect
+
 - https://www.fox29.com/news/kelly-drive-speed-limit-reduced-to-25-mph-in-philadelphia-officials
 - https://www.inquirer.com/business/kelly-drive-speed-limit-reduced-slow-20231214.html
 - https://www.phillyvoice.com/kelly-drive-speed-limit-25-mph-crashes-philly/
 - https://www.nbcphiladelphia.com/news/local/the-big-slowdown-philly-testing-slower-speed-limit-signage-on-kelly-drive-cottman-ave-and-vine-street/3721081/
 
 ### 2023-10-28 Philadelphia police officer, motorcyclist involved in crash on Kelly Drive
+
 - https://6abc.com/kelly-drive-crash-philadelphia-police-department-motorcycle/13984854/
 
 ### 2023-08-12 Motorcyclist killed after losing control
+
 - https://www.nbcphiladelphia.com/news/local/motorcyclist-killed-crash-along-kelly-drive-in-philly/3623636/
 
 ### 2023-03-16 Rope "barriers" introduced
+
 - White rope "barrier" are first introduced
 - https://www.inquirer.com/news/kelly-drive-barriers-east-fairmount-philadelphia-parks-and-recreation-trail-boathouse.html
 
 ### 2020-12-30 Fatal car crash in to tree
+
 - Car ends up on pedestrian trail
 - https://www.cbsnews.com/philadelphia/news/police-3-people-injured-in-bad-accident-on-kelly-drive-near-falls-bridge/
 
 ### 2020-07-18 Head on collision
+
 - https://www.cbsnews.com/philadelphia/news/police-3-people-injured-in-bad-accident-on-kelly-drive-near-falls-bridge/
 
 ### 2020-07-07 18 year old cyclist killed on Kelly Drive
+
 - https://www.phillyvoice.com/philly-cyclist-killed-kellly-drive-accident-investigation-vision-zero/
 - https://www.inquirer.com/news/bicyclist-kelly-drive-crash-driver-police-20200708.html
 - https://bicyclecoalition.org/18-year-old-cyclist-killed-on-high-injury-network-corridor/
 
 ### 2018-03-05 10 car pile up
+
 - https://www.youtube.com/watch?v=0tbGs79Zw2A
 
 ### 2016-04-09 Car flips in to river and man drowns
+
 - https://www.nbcphiladelphia.com/news/local/driver-death-schuylkill-river-crash-water-kelly-drive-philadelphia/72769/
 
-
 ### 2013-07-28 Car drives into river
+
 - https://www.cbsnews.com/philadelphia/news/car-drives-off-kelly-drive-into-schuykill/
 - https://www.nbcphiladelphia.com/news/local/car-crashes-into-schuylkill-river-2/1965229/
 - https://www.reddit.com/r/philadelphia/comments/1j9anq/car_drives_off_kelly_drive_and_into_the/?share_id=i86B4oe2bkwAvrSCjkSI5
 
-
 ### 2012-02-10 Four car crash
+
 - https://whyy.org/articles/kelly-drive-reopens-after-four-car-collision/
 
 ### 2012-01-17 Fatal car crash mom and 14 year old boy
+
 - https://whyy.org/articles/kelly-drive-crash/
